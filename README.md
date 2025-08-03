@@ -1,10 +1,10 @@
 # Induction-day-2025
-Name - Nandini Bansal
-Father’s name - Mr. Puneet Bansal
-Branch - Electronics and Communication Engineering
-Registration Number - 25103369
-Mobile Number - 9877992455
-Email - nandinibansal040@gmail.com
+- Name - Nandini Bansal
+- Father’s name - Mr. Puneet Bansal
+- Branch - Electronics and Communication Engineering
+- Registration Number - 25103369
+- Mobile Number - 9877992455
+- Email - nandinibansal040@gmail.com
 
 ## Day 1 - 30 July 2025
 The Shabad Kirtan at the college gurudwara was a very peaceful and serene experience. The collective devotion of all the students brought a sense of faith and gratitude in me. Sitting there, I was lost in my prayer as I prayed for my success at a new chapter of life and for God to bring me amazing opportunities at my new college. 
