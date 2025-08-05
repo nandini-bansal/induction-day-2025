@@ -5,6 +5,8 @@
 - Registration Number - 25103369
 - Mobile Number - 9877992455
 - Email - nandinibansal040@gmail.com
+- Photograph - ![IMG-20250731-WA0002](https://github.com/user-attachments/assets/27a565d2-f280-45b5-b572-6d05d319ed9a)
+
 
 ## Day 1 - 30 July 2025
 The Shabad Kirtan at the college gurudwara was a very peaceful and serene experience. The collective devotion of all the students brought a sense of faith and gratitude in me. Sitting there, I was lost in my prayer as I prayed for my success at a new chapter of life and for God to bring me amazing opportunities at my new college.<br/> 
