@@ -5,7 +5,6 @@
 - Registration Number - 25103369
 - Mobile Number - 9877992455
 - Email - nandinibansal040@gmail.com
-- Photograph - ![IMG-20250731-WA0002](https://github.com/user-attachments/assets/27a565d2-f280-45b5-b572-6d05d319ed9a)
 
 
 ## Day 1 - 30 July 2025
