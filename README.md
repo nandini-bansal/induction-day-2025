@@ -8,9 +8,13 @@
 
 ## Day 1 - 30 July 2025
 The Shabad Kirtan at the college gurudwara was a very peaceful and serene experience. The collective devotion of all the students brought a sense of faith and gratitude in me. Sitting there, I was lost in my prayer as I prayed for my success at a new chapter of life and for God to bring me amazing opportunities at my new college.<br/> 
+<br/>
 Next, in the auditorium, the inspiring speech by Dr. Harpreet Kaur Grewal, HOD, Department of Applied Sciences made me acknowledge how important it is to focus not only on freedom but studies as well to have a successful career. Her fixation on “structured freedom” was a new and vital concept that I got to know about.<br/> 
+<br/>
 The words spoken by Dr. Sehijpal Singh, Principal, were very insightful. While supporting us for giving full attention to our studies, he left no room for doubt on how our college shapes our future and that it was a thing of honour to be a student at Guru Nanak Dev Engineering College.<br/> 
+<br/>
 Lastly, the address by the chief guest, Mr. Maheshinder Singh Grewal, was very inspiring. He gave information about how he is connected to the Nankana Sahib Education Trust and was ecstatic to be a part of the event. His captivating stories about his father and his brother forged an emotional bond with him while his stories told us how the students of GNDEC had reached great heights and someday, we could be like them too.<br/>
+<br/>
 The department visit with seniors and teachers was the cherry on top as we saw our future labs and classrooms with a glimmer in our eyes. The airy and tall building of the college looked ready to accept us as the freshers of the year 2025. 
 
 ## Day 2 - 1 August 2025
