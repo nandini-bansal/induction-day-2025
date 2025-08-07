@@ -50,6 +50,13 @@ Next up, the anchor invited Mr. Manpreet Singh on stage, whose lecture on "Fitne
 <br/>
 After this, the NCC cadets took the stage. I have to say, the lecture given by Under Officer Tanmay Kaushal was very impressive. He told us all a lot about his own experience, the weaponry and machines NCC cadets get to use and he showed us the official website so that we could navigate easily and learn more about the National Cadet Corps. After his lecture, the host told us all to stand and applaud for the upcoming guest and it was thrilling to know that the guest was a very esteemed Army officer. Brigadier P.S. Cheema gave a very inspiring lecture. He told us to be efficient in whatever we do and to make sure we work for the 3 E's or the 2 S's which stood for Energy, Environment, Economy, Security and Social challenges. He recommended a book by Daniel Goleman - "Emotional Intelligence" and being an avid reader, I will read it. He kept the session very captivating with the poems and quotations and it felt very nice to be in the presence of such a respected person.<br/>
 <br/>
-After the break and the physics class by Prof. Amarjot Kaur, who told us about the syllabus and the marks distribution for the semester, we had a lecture by Mr. Gautam Murria on motorsports. Since I am an F1 fan, I enjoyed the lecture and have decided to take part in the workshop on GENCONIAN CRAFT PRIX.<br/>
+After the break and the physics class by Prof. Amarjot Kaur, who told us about the syllabus and the marks distribution for the semester, we had a lecture by Mr. Gautam Murria on motorsports. Since I am an F1 fan, I enjoyed the lecture a lot.<br/>
 
-
+## Day 6: 7 August 2025
+Today's day set off with a physics and maths lecture. We had an introduction of LASERS in physics and a discussion on Differential Equations in Maths. After the classes and the break, we all headed to the auditorium for a couple lectures.<br/>
+<br/>
+The first lecture was given by Dr. Lakhvir Singh Khana, inharge, Centre of Multi-faceted Learning. He gave us all the information that was needed to know about the CML. His words were insightful and it was nice to listen to such a learned man.<br/>
+<br/>
+To conclude the day, Dr. Jasvir Singh Grewal, incharge, National Service Scheme gave a very enlightening lecture on the mission and work done by the NSS in the college. He gave us knowledge of the history and went on to tell the advantages that we would have on joining the NSS.<br/>
+<br/>
+Both the lectures were very deep and thoughtful and bought a nice end to the day. <br/>
