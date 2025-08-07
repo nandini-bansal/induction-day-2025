@@ -59,4 +59,4 @@ The first lecture was given by Dr. Lakhvir Singh Khana, inharge, Centre of Multi
 <br/>
 To conclude the day, Dr. Jasvir Singh Grewal, incharge, National Service Scheme gave a very enlightening lecture on the mission and work done by the NSS in the college. He gave us knowledge of the history and went on to tell the advantages that we would have on joining the NSS.<br/>
 <br/>
-Both the lectures were very deep and thoughtful and bought a nice end to the day. <br/>
+Both the lectures were very deep and thoughtful and brought a nice end to the day. <br/>
