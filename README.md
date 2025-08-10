@@ -18,7 +18,8 @@ Lastly, the address by the chief guest, Mr. Maheshinder Singh Grewal, was very i
 <br/>
 The anchor also invited Mr. Harsimran to let us know about the history of Guru Nanak Dev Engineering College, which, all of us, were very proud to know about.<br/>
 The department visit with seniors and teachers was the cherry on top as we saw our future labs and classrooms with a glimmer in our eyes. The airy and tall building of the college looked ready to accept us as the freshers of the year 2025. 
-![1000236395](https://github.com/user-attachments/assets/b8e879aa-a128-4ea4-8c45-06947bedb0ae)
+![1000236395](https://github.com/user-attachments/assets/39283a2a-51bc-4b73-8179-ef50a3d336be)
+
 
 
 ## Day 2: 1 August 2025
@@ -36,7 +37,8 @@ Next, the anchor invited Mr. Gautam onstage who briefed us about motorsports and
 After the thrilling session, we were brought to a state of calm by Dr. Priya Darshini as she continued with her expert lecture on Universal Human Values. She spoke again about being happy and prosperous and how there is a difference between the needs of the body and the soul. She told us that the needs of our body were not to be confused with those of the soul. It was a very informative lecture all-in-all. <br/>
 <br/>
 Following the lectures in the auditorium and the break, all branches now had 2 classes. The scheduled classes of English and peer-to-peer Programming through problem solving using C++ of my section ECE-A were held in F-106. I sat with my new found friends and we listened intently as our English professor Mr. Aastik Sharma gave us four very interesting questions which revolved around our introduction and a letter to a friend. He then asked all of the students to, one-by-one, speak whatever they wrote in their introduction but without looking at the notebook. I was nervous at first, but then I spoke exactly what I had written and I felt confident. His class went by very fast. Next up, we had the PPS class which was conducted by our seniors from 2nd and 3rd year. They taught us to write our first C++ program. They were very kind and helping. After the hour-long class, we were now dismissed from the class and headed back home.<br/>
-![1000236396](https://github.com/user-attachments/assets/67497854-1f85-442d-8080-af75a2704f78)
+![1000236396](https://github.com/user-attachments/assets/24cb207b-c8d4-403a-8531-5047a4166fb4)
+
 
 
 ## Day 4: 5 August 2025
@@ -55,7 +57,8 @@ Next up, the anchor invited Mr. Manpreet Singh on stage, whose lecture on "Fitne
 After this, the NCC cadets took the stage. I have to say, the lecture given by Under Officer Tanmay Kaushal was very impressive. He told us all a lot about his own experience, the weaponry and machines NCC cadets get to use and he showed us the official website so that we could navigate easily and learn more about the National Cadet Corps. After his lecture, the host told us all to stand and applaud for the upcoming guest and it was thrilling to know that the guest was a very esteemed Army officer. Brigadier P.S. Cheema gave a very inspiring lecture. He told us to be efficient in whatever we do and to make sure we work for the 3 E's or the 2 S's which stood for Energy, Environment, Economy, Security and Social challenges. He recommended a book by Daniel Goleman - "Emotional Intelligence" and being an avid reader, I will read it. He kept the session very captivating with the poems and quotations and it felt very nice to be in the presence of such a respected person.<br/>
 <br/>
 After the break and the physics class by Prof. Amarjot Kaur, who told us about the syllabus and the marks distribution for the semester, we had a lecture by Mr. Gautam Murria on motorsports. Since I am an F1 fan, I enjoyed the lecture a lot.<br/>
-![1000236397](https://github.com/user-attachments/assets/dcf9c2fe-a4ba-44aa-936c-4b943dc0ed4c)
+![1000236397](https://github.com/user-attachments/assets/b3ed0c6b-db9e-4036-9018-56a1474b3272)
+
 
 
 ## Day 6: 7 August 2025
