@@ -74,5 +74,6 @@ Both the lectures were very deep and thoughtful and brought a nice end to the da
 Today, the first class was peer to peer learning in which our seniors gave us the opportunity to introduce ourselves in the class to help us boost our confidence. After the introductions, they re-assured us that they were there for our help if we needed any in our academics, clubs or extra-curriculars.<br/>
 <br/>
 Next, we went to the carpentry workshop for an introductory class. The teachers there gave us an introduction to all the workshops and told us what all we would do in carpentry. The sir present there also gave us basic knowledge of different types of woods and defects in them. It was very hot but the workshop was a different experience. <br/>
-![1000236398](https://github.com/user-attachments/assets/51ed5abe-3df5-465d-98b2-8466c5353f26)
+![1000236398](https://github.com/user-attachments/assets/8140e4ae-c4db-4c52-8a17-bc36ef14603c)
+
 
