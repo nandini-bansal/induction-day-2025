@@ -18,6 +18,8 @@ Lastly, the address by the chief guest, Mr. Maheshinder Singh Grewal, was very i
 <br/>
 The anchor also invited Mr. Harsimran to let us know about the history of Guru Nanak Dev Engineering College, which, all of us, were very proud to know about.<br/>
 The department visit with seniors and teachers was the cherry on top as we saw our future labs and classrooms with a glimmer in our eyes. The airy and tall building of the college looked ready to accept us as the freshers of the year 2025. 
+![1000236395](https://github.com/user-attachments/assets/b8e879aa-a128-4ea4-8c45-06947bedb0ae)
+
 
 ## Day 2: 1 August 2025
 The second day of the college began with the insightful lecture by Dr. Priya Darshini on Universal Human Values which taught us a lot about our dreams, aspirations, and how the main goal in life is to be happy and prosperous, in continuity. Her interaction with the students made the lecture interesting and her words gave food for thought. The assigned activity for the same was also a fun task to do while at home. It kept us in touch with human values while at home.<br/>
@@ -34,6 +36,8 @@ Next, the anchor invited Mr. Gautam onstage who briefed us about motorsports and
 After the thrilling session, we were brought to a state of calm by Dr. Priya Darshini as she continued with her expert lecture on Universal Human Values. She spoke again about being happy and prosperous and how there is a difference between the needs of the body and the soul. She told us that the needs of our body were not to be confused with those of the soul. It was a very informative lecture all-in-all. <br/>
 <br/>
 Following the lectures in the auditorium and the break, all branches now had 2 classes. The scheduled classes of English and peer-to-peer Programming through problem solving using C++ of my section ECE-A were held in F-106. I sat with my new found friends and we listened intently as our English professor Mr. Aastik Sharma gave us four very interesting questions which revolved around our introduction and a letter to a friend. He then asked all of the students to, one-by-one, speak whatever they wrote in their introduction but without looking at the notebook. I was nervous at first, but then I spoke exactly what I had written and I felt confident. His class went by very fast. Next up, we had the PPS class which was conducted by our seniors from 2nd and 3rd year. They taught us to write our first C++ program. They were very kind and helping. After the hour-long class, we were now dismissed from the class and headed back home.<br/>
+![1000236396](https://github.com/user-attachments/assets/67497854-1f85-442d-8080-af75a2704f78)
+
 
 ## Day 4: 5 August 2025
 Today was a pretty short visit to the college since we only had 2 guest lectures. The day started off with the seniors of our college setting forth more information about the college, events, sports and a lot more so that we could know all that was needed to know about the college. Listening to the seniors was fun as they were speaking from experience which they lived just like us and started off their college lives a few years ago with questions in the mind and a nervous heart. All that they said felt relatable. <br/>
@@ -51,6 +55,8 @@ Next up, the anchor invited Mr. Manpreet Singh on stage, whose lecture on "Fitne
 After this, the NCC cadets took the stage. I have to say, the lecture given by Under Officer Tanmay Kaushal was very impressive. He told us all a lot about his own experience, the weaponry and machines NCC cadets get to use and he showed us the official website so that we could navigate easily and learn more about the National Cadet Corps. After his lecture, the host told us all to stand and applaud for the upcoming guest and it was thrilling to know that the guest was a very esteemed Army officer. Brigadier P.S. Cheema gave a very inspiring lecture. He told us to be efficient in whatever we do and to make sure we work for the 3 E's or the 2 S's which stood for Energy, Environment, Economy, Security and Social challenges. He recommended a book by Daniel Goleman - "Emotional Intelligence" and being an avid reader, I will read it. He kept the session very captivating with the poems and quotations and it felt very nice to be in the presence of such a respected person.<br/>
 <br/>
 After the break and the physics class by Prof. Amarjot Kaur, who told us about the syllabus and the marks distribution for the semester, we had a lecture by Mr. Gautam Murria on motorsports. Since I am an F1 fan, I enjoyed the lecture a lot.<br/>
+![1000236397](https://github.com/user-attachments/assets/dcf9c2fe-a4ba-44aa-936c-4b943dc0ed4c)
+
 
 ## Day 6: 7 August 2025
 Today's day set off with a physics and maths lecture. We had an introduction of LASERS in physics and a discussion on Differential Equations in Maths. After the classes and the break, we all headed to the auditorium for a couple lectures.<br/>
@@ -60,3 +66,10 @@ The first lecture was given by Dr. Lakhvir Singh Khana, inharge, Centre of Multi
 To conclude the day, Dr. Jasvir Singh Grewal, incharge, National Service Scheme gave a very enlightening lecture on the mission and work done by the NSS in the college. He gave us knowledge of the history and went on to tell the advantages that we would have on joining the NSS.<br/>
 <br/>
 Both the lectures were very deep and thoughtful and brought a nice end to the day. <br/>
+
+## Day 7: 8 August 2025
+Today, the first class was peer to peer learning in which our seniors gave us the opportunity to introduce ourselves in the class to help us boost our confidence. After the introductions, they re-assured us that they were there for our help if we needed any in our academics, clubs or extra-curriculars.<br/>
+<br/>
+Next, we went to the carpentry workshop for an introductory class. The teachers there gave us an introduction to all the workshops and told us what all we would do in carpentry. The sir present there also gave us basic knowledge of different types of woods and defects in them. It was very hot but the workshop was a different experience. <br/>
+![1000236398](https://github.com/user-attachments/assets/51ed5abe-3df5-465d-98b2-8466c5353f26)
+
